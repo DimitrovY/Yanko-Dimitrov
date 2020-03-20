@@ -1,1 +1,1 @@
-# Yanko-Dimitrov
+# Yanko Dimitrov
